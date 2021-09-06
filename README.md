@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Thejus Joseph
+- 👀 I’m interested in AI, Coding and Ethical Hacking
+- 🌱 I’m currently learning Btech Electronics and Communication
+- 📫 How to reach me - ig @thejuzjoseph
